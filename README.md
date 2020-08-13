@@ -1,11 +1,6 @@
-****August 2020 update.The edu email service is still active.Use coupon code FORWILL for 30% OFF.Limited use.Expires on 13th or when coupon usage hits the limit ,whichever comes first. ****
-
+****August 2020 update.The edu email service is still active.****
 
 I will give you a new and valid edu email account that you can use to access discounts from a variety of online vendors.
-
-****NB: For quick pre-made edu emails with random names visit [https://shoppy.gg/product/xVl4mh8](https://shoppy.gg/product/xVl4mh8)****
-
-
 
 
 # TOS.
